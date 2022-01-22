@@ -1,2 +1,0 @@
-pie kabare
-apa kareba
